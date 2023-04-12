@@ -1,0 +1,1 @@
+![screencapture-file-C-Users-Lenovo-Desktop-Rutuja-Sangale-bridal-cloth-website-webpage-html-2023-04-12-19_35_32](https://user-images.githubusercontent.com/121231049/231483223-cec3580a-a2d0-43ba-80b5-959504f5436f.png)
